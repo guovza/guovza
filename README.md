@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... creating super large suoma-sámi-suoma sátnegirji
 - 📫 How to reach me ... Signal & email
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... Who the h*** stoled skuolfi username from me ;)
 
 <!---
 guovza/guovza is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
