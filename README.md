@@ -5,6 +5,7 @@
 - 📫 How to reach me ... Signal & email
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Who the h*** stoled skuolfi username from me ;)
+- 🔥 Tidal: https://tidal.com/user/27022036
 
 <!---
 guovza/guovza is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
