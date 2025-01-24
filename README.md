@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Skuolfi
 - 👀 I’m interested in ... Nature, Reggae & Dancehall and all things in Sápmi
-- 🌱 I’m currently learning ... C++
+- 🌱 I’m currently relearning ... C++, PHP, SQLite and secure programming in general 
 - 💞️ I’m looking to collaborate on ... creating super large suoma-sámi-suoma sátnegirji
 - 📫 How to reach me ... Signal & email
 - 😄 Pronouns: ... He/Him
