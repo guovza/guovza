@@ -6,7 +6,7 @@
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Who the h*** stoled skuolfi username from me ;)
 - 🔥 Tidal: https://tidal.com/user/27022036
-- ✨ Worked as IT professional and systems specialist 25 years in an organization of about 25000 users, the lesson I learned was 'Keep IT simple'
+- ✨ Worked as IT professional and systems specialist 25 years in an organization of about 20000 users, the lesson I learned was 'Keep IT simple'
 
 <!---
 guovza/guovza is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
