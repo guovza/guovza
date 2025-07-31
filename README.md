@@ -5,7 +5,7 @@
 - 📫 How to reach me ... Signal & email
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Who the h*** stoled skuolfi username from me ;)
-- 🔥 Tidal: https://tidal.com/user/27022036
+- 🔥 Tidal: https://tidal.com/@skuolfi
 - ✨ Worked as IT professional and systems specialist 25 years in an organization of about 20000 users, the lesson I learned was 'Keep IT simple'
 
 <!---
